@@ -1,0 +1,1 @@
+I've lost the virtual machine where I've kept my own bomb, so unfortunately you cannot see the puzzle.
